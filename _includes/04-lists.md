@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+😄
+1. Eating Seafood
+2. Family Time
+   1. Vacationing with family
+3. Exercising
